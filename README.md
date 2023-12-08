@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Jey88 😼
-- ☠️ I’m interested in anthropology 
-- 🌱 I’m currently learning about life? 
+- 👋 Hi, I’m @Jey88 (you can call me Mari) 
+- ☠️ I’m interested in anthropology and literature
+- 🌱 I’m a 2D artist who's interested in learning 3D moddeling.
 - 💞️ I’m looking to collaborate on creative projects  👀
 - 📫 How to reach me: shoot me a DM here! 
 
