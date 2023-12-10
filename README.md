@@ -1,4 +1,4 @@
-● 🤓 Hi, I’m @Jey88 (you can call me Mari)
+● 🤓 Hi, I’m @Jey88 (you can call me Mari or Jey)
 
 ● 🎁 In my free time I enjoy researching anthropology and literature topics
 
